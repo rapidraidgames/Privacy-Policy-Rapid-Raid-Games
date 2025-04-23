@@ -41,4 +41,4 @@ Your browser probably lets you choose whether to accept browser cookies. And you
 
 Law
 
-The terms and conditions of this Privacy Policy are subject t
+The terms and conditions of this Privacy Policy are subject to the laws of the territory of the State of the Republic of Indonesia.
